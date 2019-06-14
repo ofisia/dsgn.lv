@@ -1,2 +1,2 @@
-# [graphicdesigner.work](http://graphicdesigner.work)
+# [graphicdesigner.work](https://graphicdesigner.work)
 Jimmy Ofisia — climate conscious graphic designer from Surabaya, Indonesia
